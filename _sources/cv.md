@@ -65,3 +65,4 @@ To satisfy my eagerness for knowledge, I enroll in online courses in areas of Ar
 - Member, American Statistical Association
 - Member, Institute of Electrical and Electronics Engineers (IEEE)
 
+
